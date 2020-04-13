@@ -1,1 +1,1 @@
-# start-up-company-langing-page-2019
+# start-up-company-landing-page-2019
